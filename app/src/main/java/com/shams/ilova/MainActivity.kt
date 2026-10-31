@@ -1,0 +1,1 @@
+Pulingizga uxladingiz
